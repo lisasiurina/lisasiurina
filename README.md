@@ -1,4 +1,4 @@
-- 👋🏽 Hey, I’m Lisa :)
+- 👋🏽 Hey, I’m Liza :)
 - 💞️ I’m looking to collaborate on digital products that leave a positive impact.
 - 📫 Reach me at lisa.siurina@gmail.com 
 - 🙌🏽 Portfolio: https://lisasiurina.github.io/portfolio/
